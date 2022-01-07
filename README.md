@@ -1,5 +1,7 @@
 ### Hello, universe 😏🦚
 
+🚀 HQ & PM for agency & studio interactive digital projects in progress for 2022.
+
 <!--
 **bre-nbcu/bre-nbcu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
